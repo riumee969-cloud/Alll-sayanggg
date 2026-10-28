@@ -1,2 +1,0 @@
-# Alll-sayanggg
-web alll
